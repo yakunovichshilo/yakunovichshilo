@@ -5,7 +5,7 @@ c- 👋 Hi, I’m @yakunovichshilo
 - 📫 How to reach me ...
 
 <!---
-yakunovichshilo/yakunovichshilo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+yakunovichshilo/yakunovichshilo is a ✨ sp13e13ecial ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->hkg
 cxv
