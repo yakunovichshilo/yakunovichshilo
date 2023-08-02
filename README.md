@@ -1,11 +1,10 @@
-c- 👋 Hi, I’m @yakunovichshilo
-- 👀 I’m interested in ...2as
-- 🌱 I’m currently learning ...
+c- 👋 Hi, I’m @ ...2as
+- 🌱 I’m currently learning ...ів
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-
+в
 <!---
-yakunovichshilo/yakunovichshilo is a ✨ sp13e13ecial ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+yakunovichshilo/yakunovichsчмhilo is a ✨ spп13e13ecial ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->hkg
 cxv
