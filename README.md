@@ -1,5 +1,5 @@
 c- 👋 Hi, I’m @ ...2vcbcvbassafddxzc
-- 🌱 I’m currently lasdearning ...івsadasd
+- 🌱 I’m currently lasdeaasdzvcxvrning ...івsadasd
 - 💞️ I’m vcxlookizxczxcch me ...sa
 <!---sdascxzcvx
 yakunovichshilo/ysfdsfdakunodsffdvafdaradss on your GitHub profile.sad
