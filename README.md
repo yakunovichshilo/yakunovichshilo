@@ -1,5 +1,5 @@
 c- 👋 Hi, I’m @ ...2vcbcvbassakbfddxzcвфіfsdfsdfdsfsdвя
-- 🌱 I’m currently lasdsadssadxzceaassadasdsaddhghgjzvcxghjc ghvrnixdfgfgdxng,mn ...іфвівshлиjadasdдлоzXzx
+- 🌱 I’m currently bmlasdsadssadxzceaassadasdsaddhghgjzvcxghjc ghvrnixdfgfgdxng,mn ...іфвівshлиjadasdдлоzXzx
 - 💞️ I’m vcxasdlookizxczxcch sdfdme gffdhgffdsff,dsadkh..sasxsadxzcxzcdsad
 <!---sdascxzcvxcxvxcvвфісчxcvаівмсsdfdsdf
 yakunovichshilo/ysfdsfdakunodsffasdvafdahgradvvbss on your GitHub profile.sad
